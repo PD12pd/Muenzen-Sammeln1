@@ -1,1 +1,0 @@
-# Muenzen-Sammeln1
